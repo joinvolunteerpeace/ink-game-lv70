@@ -1,4 +1,4 @@
-
+ink game instant Scripts is the best ink game Script, featuring auto-farm and auto-upgrade. Safe and powerful for all your needs.
 
 
 
